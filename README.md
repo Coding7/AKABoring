@@ -1,2 +1,2 @@
-# AKABoring.github.io
+# AKABoring
 ！gnirob ton epoh
